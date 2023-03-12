@@ -2,7 +2,7 @@
 - 👀 I’m interested in eating
 - 🌱 I’m currently learning how to eat more
 - 💞️ I’m looking to collaborate on buffet and high tea events
-- 📫 How to reach me visit near restaurents around you anyday.
+- 📫 How to reach me visit near restaurant and hotel around you anyday.
 
 <!---
 sroshanakthar/sroshanakthar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

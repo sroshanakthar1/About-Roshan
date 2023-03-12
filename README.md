@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sroshanakthar
 - 👀 I’m interested in eating
-- 🌱 I’m currently learning how to ear more
+- 🌱 I’m currently learning how to eat more
 - 💞️ I’m looking to collaborate on buffet and high tea events
 - 📫 How to reach me visit near restaurents around you anyday.
 
